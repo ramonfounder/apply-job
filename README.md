@@ -20,7 +20,7 @@ Hey there, fellow job seekers and code enthusiasts! 🚀 I'm thrilled to introdu
 
 ## Calling All Developers!
 
-### Let's Make Magic Together
+### Strategize Smart, Succeed Together 🤝
 
 Fancy making ApplyJob even more awesome? We're looking for brave souls who dare to dream big, code hard, and commit even harder. Here's how you can join the party:
 
